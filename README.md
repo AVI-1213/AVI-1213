@@ -1,5 +1,5 @@
 
-# Hi there, I'm [Avinash]! 👋
+# Hi there, I'm Avinash! 👋
 
 Seasoned professional blending business and data analysis expertise with over a decade of experience in Global Supply Chain Management and Overseas Logistics Management. Currently pursuing a Graduate Certificate in Data Analytics and Visualization from the University of Toronto. Proficient in uncovering valuable insights from diverse data sets, adept at structured and raw data analysis. A collaborative problem-solver with a keen eye for detail and a track record of successful teamwork across various domains.
 
